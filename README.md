@@ -29,22 +29,5 @@ you might also know me across the network as:
 - **Minecraft:** `W1nda0x1` or `MaratTverdyyZnak`
 - **Telegram:** `@WhatsApp_Mark_Sigma`
 
+- <img width="1754" height="1240" alt="Без названия148" src="https://github.com/user-attachments/assets/187094b2-1e80-4bd6-84c0-78af728136d5" />
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<img width="168" height="300" alt="image" src="https://github.com/user-attachments/assets/83d8dac8-f4c3-44b3-b36f-ef9b71d45670" />
